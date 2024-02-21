@@ -6,7 +6,7 @@ Hey everyone!!👋
 
 Thanks for visiting my page! I was in traditional marketing for a while until I had to take some time off to take care of personal matters. Now, it's time for me to set my sights on another lofty goal by turning my hobby into a new career. 
 
-I am currently studying to complete my Bachelor in Business Administration while learning data analysis on my own. I'm taking baby steps, and I'm here to supplement my courses work, practice and get my hands dirty with projects and other things I can do to help out wherever I can! With time, practice, and the help of this awesome community, I'm confident I can achieve my goals!
+I am currently studying to complete my Bachelor in Business Administration while learning data analytics on my own. I'm taking baby steps, and I'm here to supplement my course work, practice, and get my hands dirty with projects and other things I can do to help out wherever I can! With time, practice, and the help of this awesome community, I'm confident I can achieve my goals!
 
 ****
 #### Experience:  
